@@ -19,9 +19,12 @@
   
 
  💣 I'm eager to contribute to innovative projects and continually expand my skills in the industry.  
-  
 
-  😀 Feel free to check out my repositories and connect with me!  
+
+ 📫 How to reach me **sharnujan123@gmail.com**
+
+  
+ 😀 Feel free to check out my repositories and connect with me!  
   
 
 <br/>  
